@@ -1,1 +1,1 @@
-[# profile](https://froyzan.ru)
+https://froyzan.ru
